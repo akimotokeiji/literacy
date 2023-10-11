@@ -1,3 +1,1 @@
-# literacy
-
-2342005
+I have[wikipedia](https://ja.wikipedia.org)
